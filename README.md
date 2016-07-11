@@ -1,5 +1,5 @@
 Steven's Stamp Collection App
 
-About Jolin
+About Jolin's Stamps
 
-stuff about Steven's Stamps here...
+Jolin has been collecting stamps since 1981, she has wide variety of Chinese stamps
