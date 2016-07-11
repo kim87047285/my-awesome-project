@@ -1,6 +1,6 @@
 Join's Stamp Collection APP
 ---
 
-# About
+# About Jolin
 
 Stuff about Jolin's Stamps here...
