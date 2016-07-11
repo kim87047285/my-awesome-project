@@ -1,5 +1,5 @@
 Steven's Stamp Collection App
 
-About Steven
+About Jolin
 
 stuff about Steven's Stamps here...
